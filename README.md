@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/115040bc3dd8c0406edddf1749082fbb/d0464bd76546c2ad-12/s640x960/75f446d32732a70a1b2bdccff560f6e129bb81da.gifv"/>
+  <img src="https://64.media.tumblr.com/c02456f8c241e4c6fd340b48fac48071/01424bad4c7c2b42-d3/s1280x1920/d1d3864f32856199530a422a2857a2f6b760a642.jpg"/>
 </p>
 
  <p align="center">
@@ -9,5 +9,5 @@
 <p align=center> PLEWASE WHAT DO I PUT EHREEEEEE⠀⠀. <p align=center>
 
 <p align="center">
-  <img src="https://i.pinimg.com/736x/c5/62/dc/c562dca822201f744008ccf934c8d3f3.jpg"/>
+  <img src="https://64.media.tumblr.com/f6105363b1de98e26315e01ae4947f76/01424bad4c7c2b42-46/s400x600/35c191ccfcdea7ba248f0576e5249893e2e8122f.gifv"/>
 </p>
