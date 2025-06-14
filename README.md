@@ -1,4 +1,4 @@
-<p align=center> Wrong City⠀⠀,⠀⠀Wrong People⠀⠀. <p align=center>
+<p align=center> i like cyberpunk 2077(+edgerunners) and epic⠀⠀. <p align=center>
 
 
 <p align="center">
