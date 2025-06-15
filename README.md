@@ -2,5 +2,5 @@
 
 
 <p align="center">
-  <img src="https://media1.tenor.com/m/K61MZw7ef1UAAAAd/musical-animation.gif"/>
+  <img src="https://i.pinimg.com/736x/48/c3/0f/48c30fb8ec7ee3e49f95c1ea58433673.jpg"/>
 </p>
