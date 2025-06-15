@@ -2,5 +2,5 @@
 
 
 <p align="center">
-  <img src="https://media1.tenor.com/m/cZIGo-5PN04AAAAd/johnny-silverhand-v-cyberpunk.gif"/>
+  <img src="https://media1.tenor.com/m/K61MZw7ef1UAAAAd/musical-animation.gif"/>
 </p>
