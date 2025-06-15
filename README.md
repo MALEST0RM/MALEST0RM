@@ -1,5 +1,5 @@
 <p align=center> i like cyberpunk 2077(+edgerunners) and epic⠀⠀. <p align=center>
-<p align=center> will i finish this? who knows.⠀⠀. <p align=center>
+<p align=center> will i finish this? who knows⠀⠀. <p align=center>
 
 
 <p align="center">
